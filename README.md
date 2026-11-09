@@ -1,2 +1,2 @@
-Building cool sh*t on the internet. ✳️
-Obsessed w/ good design & making things<br> that should exist. 🌸
+Building cool sh*t on the internet. ✳️<br>
+Obsessed w/ good design & making things that should exist. 🌸
